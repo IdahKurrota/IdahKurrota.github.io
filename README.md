@@ -1,0 +1,1 @@
+# IdahKurrota.github.io
